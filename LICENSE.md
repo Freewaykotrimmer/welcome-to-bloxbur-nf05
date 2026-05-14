@@ -1,4 +1,4 @@
-#  
+#  Experience welcome to bloxburg like never before with custom welcome to bloxburg Scripts, the #1 Script. Includes auto-collect and custom skins for
 
 
 
